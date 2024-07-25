@@ -1,4 +1,4 @@
-                                                                                        👋 Hi, I’m Varshitha
+👋 Hi, I’m Varshitha
 
 💻 Technical Skills:
 
